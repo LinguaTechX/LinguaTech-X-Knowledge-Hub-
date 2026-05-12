@@ -1,1 +1,1 @@
-# LinguaTech-X-Knowledge-Hub-
+# Lingua Tech X Knowledge Hub
